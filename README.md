@@ -1,2 +1,2 @@
 ## 🤝 Hello everyone! 
-I'm soongi Hong, developer from korean
+I'm soongi Hong, developer from korean 🇰🇷
